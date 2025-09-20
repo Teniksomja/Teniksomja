@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tenik
-- 👀 I’m interested in minecraft
+- 👀 I’m interested in video edits
 - 🌱 I’m currently learning video editing
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me on my ig 
